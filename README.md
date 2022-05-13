@@ -1,1 +1,1 @@
-# Sample_D
+# GOLGA8M
